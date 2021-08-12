@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @XenoboticalReal
+- 👀 I’m interested in pooping
+- 🌱 I’m currently learning how to frick ur mom
+- 💞️ I’m looking to collaborate on Anarchy Utility Clients
+- 📫 How to reach me www.xenobotical.cf
