@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @XenoboticalReal
-- 👀 I’m interested in pooping
-- 🌱 I’m currently learning how to frick ur mom
-- 💞️ I’m looking to collaborate on Anarchy Utility Clients
-- 📫 How to reach me www.xenobotical.cf
+- 👋 Hi, I’m XNBT
+- 👀 I’m interested in coding minecraft clients and discord stuff
+- 🌱 I’m currently learning JavaScript (NeXT.JS specifcally)
+- 📫 How to reach me XNBT on YouTube, @TheXNBT on Twitter and XNBT#0001 on Discord.
